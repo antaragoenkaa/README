@@ -2,16 +2,10 @@ GENDER BIAS AGAINST FEMALES IN INDIA
 
 ![Gender-Inequality-in-India](https://user-images.githubusercontent.com/94577003/144219734-29cbd25c-5efa-4320-b930-e02b672ab20d.jpg)
 
+Gender Bias is a topic that has a lot of views and debates. The presence of the bias is a result of centuries of social conditioning especially in India. 
+Today we have governments and companies and brands and many voices working to make a change and undo the past and create a path for the future for women but it is a journey and will need a fight towards and for it every day.
 
-Discrimination against women and girls is a pervasive and long-running phenomenon that characterises Indian society at every level.
- 
-India’s progress towards gender equality, measured by its position on rankings such as the Gender Development Index has been disappointing, despite fairly rapid rates of economic growth.
- 
-In the past decade, while Indian GDP has grown by around 6%, there has been a large decline in female labour force participation from 34% to 27%. The male-female wage gap has been stagnant at 50% (a recent survey finds a 27% gender pay gap in white-collar jobs).
- 
-Crimes against women show an upward trend, in particular brutal crimes such as rapes, dowry deaths, and honour killings. These trends are disturbing, as a natural prediction would be that with growth comes education and prosperity, and a possible decline in adherence to traditional institutions and socially prescribed gender roles that hold women back.
-
-A preference for sons
+![image](https://user-images.githubusercontent.com/94577003/144563069-55c15b61-99e3-4017-b8fc-fac093d5d991.png)
 
 ![Gender Equality Hero](https://user-images.githubusercontent.com/94577003/144219840-c4387773-054b-4867-96c1-51d0b2d6ad79.jpg)
 
