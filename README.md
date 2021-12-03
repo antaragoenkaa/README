@@ -5,6 +5,7 @@ GENDER BIAS AGAINST FEMALES IN INDIA
 Gender Bias is a topic that has a lot of views and debates. The presence of the bias is a result of centuries of social conditioning especially in India.
 Today we have governments and companies and brands and many voices working to make a change and undo the past and create a path for the future for women but it is a journey and will need a fight towards and for it every day.
 
+
 ![Gender Equality Hero](https://user-images.githubusercontent.com/94577003/144219840-c4387773-054b-4867-96c1-51d0b2d6ad79.jpg)
 
  
